@@ -6,7 +6,7 @@
 
 - I’m currently learning how to use Figma ❤️💙💚
 
-- I’m looking to collaborate 🙌 with smart & nice people valuing integrity
+- I’m looking to collaborate 🙌 with smart & nice people with high integrity
 
 - I'm into food/cooking 🍽️ , mountainbiking, snowboarding 🏂 , dancing & calisthenics 
 
